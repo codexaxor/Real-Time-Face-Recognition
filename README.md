@@ -17,4 +17,4 @@
 
 ## Find us on FaceBook
 [Mohammad Abu Yousuf Sajal] (https://www.facebook.com/yousufsajal)
-[Fuad Hasan Safat] (https://www.facebook.com/fuad.safat.7)
+
